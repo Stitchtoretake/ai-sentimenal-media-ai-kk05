@@ -1,4 +1,4 @@
-# 
+# VIP AI Sentiment Analysis for Social Media سمات. مع أخلاقيات الذكاء الاصطناعي و تعزيز البيانات — مُحسَّن لأقصى أداء.
 
 
 
